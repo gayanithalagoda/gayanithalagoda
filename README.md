@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @gayanithalagoda
+- Recent MSc.Actuarial Science Graduate from University of Calgary.
+- Actuary in the making. Actively pursuing SOA (Society of Actuaries Exams).
+- I have keen interests in Quantitative Finance, Risk Management, Analytics, Research, Investment and Insurance. 
+- Looking for opportunities to get an industry exposure.
+- reach me at gayanithalagoda@gmail.com
